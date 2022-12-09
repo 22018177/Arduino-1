@@ -5,6 +5,10 @@ members:Jiaxin Liang(It's me)/Yuwei Fei/Yan Zhang
 
 Introduction：Initiated by the heartbeat (love) of the person who touches it, forever away from the dead electronic plant.
 
+
+
+you can see video：https://www.youtube.com/watch?v=fOG-7o2Zhss
+
 # week 4
 We discussed many forms of expression before deciding on the plan, and finally chose something that the three of us empathized with, that is, the experience of all three of us raising dead plants. We intend to use this as a center to make a plant that will not die.
 
